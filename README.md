@@ -1,4 +1,3 @@
-# shekhar9611032697
 <h1 align="center">📊 Shekher VP | Data Analyst</h1>
 
 <p align="center">
