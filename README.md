@@ -73,8 +73,8 @@ To leverage analytical skills and technical expertise to contribute to data-driv
 
 ## 📫 Contact Information
 
-- Email: shekher@example.com  
-- LinkedIn: (Add your LinkedIn profile link)
+- Email: shekhar9611032697@gmail.com  
+- LinkedIn: www.linkedin.com/in/shekhar-v-periyakaruppan-4469102b6
 
 ---
 
